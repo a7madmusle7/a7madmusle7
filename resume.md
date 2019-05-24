@@ -1,14 +1,14 @@
-Ahmad Musleh
+<b>Ahmad Musleh</b>
 
 Mobile 505-620-9537
 
 Ahmad-Musleh@live.com
 
-Objective
+<b>Objective</b>
 
 Seeking a position as a Java and Android application developer.
 
-Education
+<b>Education</b>
 
 University of New Mexico
 
