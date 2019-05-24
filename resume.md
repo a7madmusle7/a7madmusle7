@@ -1,5 +1,7 @@
 Ahmad Musleh
+
 Mobile 505-620-9537
+
 Ahmad-Musleh@live.com
 
 Objective
